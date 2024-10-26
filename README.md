@@ -36,6 +36,7 @@
 ## 附：最新的各非官方社团QQ群号及二维码如下（待补充）。
 
 ### 图易哲学社
+981853440（需扫码进入）
 ![0cb4c19d2aee91b9917d12f504028332](https://github.com/user-attachments/assets/0a3e469d-83cf-4cb8-99a4-d9ee2c3c67a7)
 
 
